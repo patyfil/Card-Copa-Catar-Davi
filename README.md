@@ -1,1 +1,0 @@
-# Card-Copa-Catar-Davi
